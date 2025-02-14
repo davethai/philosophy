@@ -1,0 +1,1 @@
+Pain, hardship, suffering builds character, strength, and resilience.
